@@ -1,1 +1,0 @@
-# vertic-consultancy-fdk
